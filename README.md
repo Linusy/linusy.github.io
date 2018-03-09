@@ -1,2 +1,2 @@
 # linusy.github.io
-dkvfhöasdjk
+just learning
